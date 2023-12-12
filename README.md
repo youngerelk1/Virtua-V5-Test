@@ -1,3 +1,2 @@
-# Sonic-2-Mania-Development
-S2M Development Repository
-it explains itself
+# Virtua Teams Little V5 Proof of Concpet. 
+Weeeeee.... *psst*
